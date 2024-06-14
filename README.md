@@ -5,6 +5,8 @@ Studen
 ------
 
 * 🌍  I'm based in Bangkok, Thailand
+* ปุญญพัฒน์ รักษ์ชูชีพ
+* Poonyapat Rugchoocheep
 
 ### Skills
 
